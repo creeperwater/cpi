@@ -4,6 +4,7 @@
 
 Secure and diverse funding enables Transparency International to undertake its vital work, maintain its independence and reputation, and operate effectively.
 
+有保障和多样化的资金使透明国际能够开展其重要工作，保持其独立性和声誉，并有效运作。
 
 We value all contributions to our work and would like to express our sincere gratitude to the institutions, companies and generous individuals who supported the Transparency International secretariat in 2019.
 
